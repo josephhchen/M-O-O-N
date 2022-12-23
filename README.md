@@ -1,2 +1,2 @@
 # M-O-O-N
-Hello!
+M O O N aesthetics - Created by Joseph Chen & Doniyor Ismatilloev
